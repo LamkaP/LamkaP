@@ -1,5 +1,5 @@
 Geotech Engineer (PhD) from tropical country:
-Leaving in Japan, obsessed with Big Data Analysist
+Living in Japan, obsessed with Big Data Analysist
 and currently learning CO2 Emission affect on Disaster Prevention.
 Don't hesistate to reach and collaborate with me!
 
